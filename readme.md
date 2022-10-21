@@ -1,0 +1,1 @@
+[세미나 영상 링크](https://www.youtube.com/watch?v=NZElq4_83u0&list=PLNfcS66RcXQWJ5osISnS-5OyfqIy7v7ci)
